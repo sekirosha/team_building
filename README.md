@@ -58,7 +58,7 @@ Though we’re not profitable yet, we’re driven by a vision to create innovati
 
 ## 📩 How to Apply
 
-Ready to join the SEKIROSHA team? Fill out the [**Google Form**](https://example.com) and take the first step towards building the future with us.
+Ready to join the SEKIROSHA team? Fill out the [**Google Form**](https://forms.gle/jEmJRb7SipiDv5xbA) and take the first step towards building the future with us.
 
 ---
 
