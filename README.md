@@ -3,6 +3,7 @@
 Are you passionate about **technology**, **design**, or **event planning**? Do you want to contribute to building something extraordinary while making a positive change in the world? **SEKIROSHA**, a new and ambitious startup, is calling out for dreamers, doers, and innovators to join our team!
 
 ---
+![image alt](https://i.postimg.cc/59PmcvS6/re-1-0.png) 
 
 ## Who We Are
 
@@ -44,6 +45,8 @@ Though we’re not profitable yet, we’re driven by a vision to create innovati
 - *Join us in building SEKIROSHA’s brand and reaching new clients through creative strategies.*
 
 ---
+
+![image alt](https://i.postimg.cc/xThy827Q/sekirosha-team-buliding.png) 
 
 ## What You’ll Get
 
